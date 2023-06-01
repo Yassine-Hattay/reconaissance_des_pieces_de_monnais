@@ -1,1 +1,1 @@
-Pour plus d'informations, consultez le rapport
+Pour plus d'informations, consultez le rapport :) .
